@@ -1,1 +1,1 @@
-# LAND-RESOURCES-AND-MANAGEMENT
+# Land-Resource-and-Its-Management
